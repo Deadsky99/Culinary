@@ -1,2 +1,0 @@
-# Culinary
-Me hosting videos
